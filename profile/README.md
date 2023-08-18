@@ -7,7 +7,7 @@ One year and four years old, spring, summer, autumn, and winter
   
 <p align="center">
   <a href="https://kuangpf.com/dumi-theme-antd">
-    <img width="300" height="300"  src="http://oss.js-suxin.com/40e5dbc8682eee4a27c89f4e7d395007c76f9719.png">
+    <img width="260" height="260"  src="http://oss.js-suxin.com/40e5dbc8682eee4a27c89f4e7d395007c76f9719.png">
   </a>
 </p>
 
