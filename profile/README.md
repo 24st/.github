@@ -1,7 +1,7 @@
 ## Hi there 👋
 
-#### I am a particularly stubborn person 🙋 I never cared 🌈 What do others say to me
-#### Let me do it 👩‍💻 If you can also 🍿 Like me 🧙 So I think this matter
+#### We are particularly stubborn person 🙋 We never cared 🌈 What do others say to us
+#### Let's do it 👩‍💻 If you can also 🍿 Like us 🧙 So I think this matter
 
 # Too Cool Spicy ✨
 
