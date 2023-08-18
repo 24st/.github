@@ -7,6 +7,4 @@
 
 Please send an email to accums@pm.me Indicate the purpose of the visit
 
-We will reply to you within 24 hours after receiving the email
-
-or Pay me 50 RMB to see your strength
+We will reply to you within 24 hours after receiving the email . or Pay me 50 RMB to see your strength
