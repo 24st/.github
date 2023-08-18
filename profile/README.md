@@ -11,9 +11,10 @@
 
 <center>
 
-# 泰酷辣 ✨
-#### 我是一个特别固执的人🙋‍♀ 我从来不会在意🌈 别人跟我说什么
-#### 让我去做👩‍💻 如果你也可以🍿  像我一样🧙  那我觉得这件事情
+
+#### I am a particularly stubborn person 🙋‍♀ I never cared🌈 What do others say to me
+#### Let me do it 👩‍💻 If you can also🍿  Like me🧙  So I think this matter
+# Tai Ku Spicy ✨
 
 请发邮至accums@pm.me 注明来意 , 收到邮件后将在2个工作日内回复您。<br/>
 亦或者 V我50看看实力 😈
